@@ -1,1 +1,1 @@
-# nft-prophecy-
+# nft-prophecy
